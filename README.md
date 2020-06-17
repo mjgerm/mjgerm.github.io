@@ -1,1 +1,0 @@
-# mjgerm.github.io
